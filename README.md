@@ -1,1 +1,1 @@
-# Velvet-scoop
+Magic Creames & Co.
